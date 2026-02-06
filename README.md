@@ -1,5 +1,5 @@
 # 2026_01
-个人测试使用
+MAKE FRIENDS！！！
 
 Good morning, this is the ConfidentLYH.
 
